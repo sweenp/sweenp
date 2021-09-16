@@ -1,0 +1,3 @@
+- 👋 @sweenp
+- 👀 I’m interested in data/kdb
+- 🌱 I’m currently learning too many things at once
